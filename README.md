@@ -378,8 +378,7 @@ SECCIÓN 16–8 Aplicaciones básicas
 
 En el presente video se explican unos ejercicios para la mejor comprensión del tema.
 
-=> https://youtu.be/TT69d_OLA4M
-
+=> https://youtu.be/EILEsVfTCAc
 
 # 5.-CONCLUSIONES
 
